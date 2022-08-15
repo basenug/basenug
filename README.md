@@ -1,5 +1,7 @@
 [opensea](https://opensea.io/basenug)
 
+[twitter](https://twitter.com/basenug)
+
 [instagram](https://instagram.com/_basenug)
 
 <!---
